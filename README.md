@@ -1,3 +1,6 @@
+Very outdated bio lol.
+
+
 - 👋 Hi, I’m @Gamerocker7000 (Username Gamerocker77 in Minecraft, 78 on Roblox, and 79 on Discord.)
 - 👀 I’m interested in installing the starline fork of the Iris shaders mod for Minecraft since Optifabric isn't compatible with my friend's modpack & I need settings.
 - 🌱 I’m currently learning how to breathe air
